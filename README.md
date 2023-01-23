@@ -1,0 +1,1 @@
+# Extra-o_de_dados_do_twitter_analiseResultados
